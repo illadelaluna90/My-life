@@ -37,5 +37,14 @@ AUDHD (with autistic traits) shapes how I think: hyperfocus, directness, sensory
 - Languages: English · Español · Català (C2 spoken)  
 - Availability: small, flexible remote work (a few hours/week)
 
+## My cats 🐱
+Two very different personalities sharing my home:
+
+- **Arryn** — the fluffy orange one. Big eyes, big energy, absolute chaos gremlin wrapped in fur.  
+  ![Arryn](https://github.com/user-attachments/assets/39442e2d-c76f-4fda-b3d4-73f3b9d2ba93)
+
+- **Lily** — the tabby. Perpetually unimpressed, deeply sceptical of everything, loves cuddles on her own terms.  
+  ![Lily](https://github.com/user-attachments/assets/4c45b5fb-d454-4354-9a41-7c627dfd00fb)
+
 ## Contact
 Prefer contact via LinkedIn DMs: https://www.linkedin.com/in/ariannaluardue
