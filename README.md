@@ -1,5 +1,7 @@
 # Hi, I’m Ari 👋
 
+<img src="https://github.com/user-attachments/assets/fb7cd41e-911f-49a4-b3d7-a016bbef22b8" alt="Ari" width="300"/>
+
 > Shy at first — honest, playful, and justice-minded. Neurodivergent (AUDHD) — curious about people, stories & systems.
 
 ---
